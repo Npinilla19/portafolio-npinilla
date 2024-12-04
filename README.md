@@ -8,5 +8,5 @@ En este portafolio, presento el resultado de mi esfuerzo y crecimiento profesion
 
 ## Contactame 
 
-[Linkedin](https://github.com/Npinilla19)
+[Linkedin](https://www.linkedin.com/in/nicole-pinilla-99a408316/)
 [Github](https://github.com/Npinilla19)
